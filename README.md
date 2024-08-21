@@ -7,7 +7,7 @@
 - 🌱 I’m finished learning **Microbit** and I'm **Champion**.
 - 📫 How to reach me **savidinimethma419@gmail.com**
 
-- ⚡ Fun fact **Calle me as SND**
+- ⚡ Fun fact **Calle me as Sadi D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
